@@ -1,0 +1,9 @@
+# Working with Nicholas
+
+1. **How I communicate.** I prefer email, especially for detailed work. I usually respond within 48 hours. That's my commitment, not something I expect back from you, though I'll check in to see if you've received something. I'm fine with verbal meetings once we've already worked through the details in writing first.  
+2. **How I make decisions.** Low-stakes or reversible decisions get made fast, often by whoever's closest to the work. High-stakes or hard-to-reverse decisions get real discussion before anyone commits. I want agreement on the goal and the principles behind it. Once that's set, I don't need to be consulted on every step underneath it.  
+3. **What I value, and what frustrates me.** I value a well-thought-through opinion, one that shows care has gone into the collaboration, considers us together and our surroundings, and is conscious of resources rather than wasteful. What frustrates me is the opposite: someone unwilling to do the actual work, who only considers themselves and makes selfish decisions, especially ones that put anyone at risk of harm.  
+4. **How I give and receive feedback.** I'm direct and blunt. I usually give feedback immediately, in person, followed up with an email.  
+5. **What I need from a collaborator.** Transparency. The faster I get an honest answer, the better. If you know something, tell me. If you don't, say so rather than guessing.  
+6. **What you can expect from me**. I'll take the time to think through how we get to the goal together, and I bring real vigour to actually getting there.  
+7. **A common misunderstanding.** Because I'm direct, people sometimes read it as me trying to hurt them. It's not. It's a statement of fact, with no ill intent behind it. I've gotten more tactful over time, but I know it can still land hard for some people.
