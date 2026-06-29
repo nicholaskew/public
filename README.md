@@ -1,6 +1,6 @@
 # Nicholas Kew
 
-## Strategy, ventures, and thinking from Nicholas Kew. Southeast Asia business, content, and video production.
+## Strategy, ventures, and operating principles from Nicholas Kew. Southeast Asia business, content, and brand building.
 
 Hey, I'm Nicholas Kew.
 
