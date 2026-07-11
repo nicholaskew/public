@@ -16,7 +16,7 @@ Thank you for being part of my life's story.
 
 ## How to use this repo
 
-To help you navigate, organised below:
+To help you navigate, please follow below:
 
 ### Collaborate with me:
 
@@ -37,7 +37,7 @@ To help you navigate, organised below:
 ## Links
 
 * [Nicholas Kew's LinkedIn](https://www.linkedin.com/in/nicholaskew/)  
-* AGS Studios: [Instagram](https://www.instagram.com/ags5___/) | YouTube | TikTok
+* Beef Up Snacks: [Web Store](http://www.beefupsnacks.com/) | [Instagram](https://www.instagram.com/beefupsnacks/)
 
-*Last updated: June 2026*
+*Last updated: July 2026*
 
